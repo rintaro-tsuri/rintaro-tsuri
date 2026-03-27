@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there 👋 WHY I CAN'T REGISTER EDUCATION PROGLAM?????
 
 <!--
 **rintaro-tsuri/rintaro-tsuri** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
